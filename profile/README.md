@@ -2,7 +2,7 @@
 
 If you're a fan of mobile gaming and looking for an exciting new game to play, **Project JBL 2 APK** is a must-try. The game has quickly become a favorite among Android users, offering thrilling gameplay, stunning graphics, and a unique experience that keeps players coming back for more. Whether you’re an experienced gamer or just looking for a fun way to pass the time, this latest version is packed with new features, making it a top choice for 2025.
 
-[![Download Project JBL 2 APK](https://img.shields.io/badge/Download-Project_JBL_2_APK-blue?style=for-the-badge&logo=appveyor)](https://apkbros.com/project-jbl-2-apk/download)
+[![Download Project JBL 2 APK](https://img.shields.io/badge/Download-Project_JBL_2_APK-blue?style=for-the-badge&logo=appveyor)](https://apkbros.com/project-jbl-2-apk/)
 
 ### What is Project JBL 2 APK?
 
